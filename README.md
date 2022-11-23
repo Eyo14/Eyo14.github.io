@@ -16,3 +16,5 @@ Only use microwave-safe containers to heat things in the microwave.
 If a smoke alarm sounds during normal cooking, open a door or fan the area. Do not disable the smoke alarm or take out the batteries.        
 
 ![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSndf2-2OLCekftXzhsw8EOH1f7hGXBbBS6jA&usqp=CAU)
+
+Thank You!! 
