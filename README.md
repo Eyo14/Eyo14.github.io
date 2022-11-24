@@ -19,4 +19,4 @@ If a smoke alarm sounds during normal cooking, open a door or fan the area. Do n
 
 Thank You!! 
 
-![alt text](https://youtu.be/O2_XQ1fQGyk)
+
